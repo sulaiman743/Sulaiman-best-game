@@ -1,2 +1,0 @@
-# Sulaiman-best-game
-Hi
